@@ -2,4 +2,5 @@
 Josefa Peralta 
 María Jesús Rioseco
 Vicente Cruz Díaz
+Guadalupe Croce
 

@@ -5,3 +5,4 @@ Vicente Cruz Díaz
 Guadalupe Croce
 Rocío Molina
 Antonia Farias
+Beatriz Cornejo Lopez
